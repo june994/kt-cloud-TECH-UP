@@ -1,1 +1,0 @@
-# kt-cloud-TECH-UP
